@@ -4,3 +4,4 @@
 - 👨‍💻 You can also check out my Resume at [https://priteshvermaa.github.io/Resume/](https://priteshvermaa.github.io/Resume/)
 
 - 📫 How to reach me **pritesh0797@gmail.com**
+- My other Github Account [https://github.com/priteshiitdh](https://github.com/priteshiitdh)
